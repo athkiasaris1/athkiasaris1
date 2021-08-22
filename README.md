@@ -1,3 +1,3 @@
-Hello I am athkiasaris1 or Angelos!
+Hello I am athkiasaris1!
 
 I make really bad things.
